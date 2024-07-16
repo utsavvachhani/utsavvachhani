@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @utsavvachhani
 - 👀 I’m interested in Coding.
 - 🌱 I’m currently learning Web Technology.
-- 💞️ I’m looking to collaborate on TCS.
+- 💞️ I’m looking to collaborate on my self.
 - 📫 How to reach me https://linktr.ee/utsavvachhani
 
 
